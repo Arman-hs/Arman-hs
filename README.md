@@ -1,5 +1,5 @@
 
 
-# Hi there, I'm Arman Hajisafi! 👋
+# Hi there, I'm Arman! 👋
 
 
